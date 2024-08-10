@@ -1,0 +1,1 @@
+# Lisa-Amacsiz-Sehir-Merkezinin-Tamircisi-Yanan-Statik
